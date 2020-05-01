@@ -1,2 +1,0 @@
-# ardibob.github.io
-
